@@ -6,4 +6,4 @@
 
 🌱 I’m currently learning more and more
 
-📫 How to reach me: mokhaledd1220@gmail.com
+📫 How to reach me: mokhaledd1612@gmail.com
